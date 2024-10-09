@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DeepaselvakumarM
+- 👀 I’m interested in developing.
+- 🌱 I’m currently learning Full stack development
+- 💞️ I’m looking to collaborate on tech companies to expand my skills.
+- 📫 How to reach me sdeepa0711@gmail.com
+- 😄 Pronouns: Deepa
+- ⚡ Fun fact: Make a vision...
